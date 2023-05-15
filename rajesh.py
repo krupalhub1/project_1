@@ -1,0 +1,1 @@
+print("hello rajesh ")[D[D[Dh[
